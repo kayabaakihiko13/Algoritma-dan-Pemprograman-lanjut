@@ -1,2 +1,2 @@
 # Algoritma-dan-Pemprograman-lanjut
-What I Do in second credit
+What I Did in second credit
